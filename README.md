@@ -1,4 +1,5 @@
-![Uploading Screenshot_20221108_205429.png…]()
+![Screenshot 2023-10-05 011222](https://github.com/Adii-sharma/Newsify/assets/104681131/df958a85-1e9a-4e10-9a57-a1dd2e1d7905)
+
 
 
 
